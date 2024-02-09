@@ -1,0 +1,1 @@
+Each nostril of a human being register smell in a different way. Smells that are made from the right nostril are more pleasant than the left. However, smells can be detected more accurately when made by the left nostril
